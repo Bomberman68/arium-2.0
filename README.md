@@ -11,4 +11,6 @@ Telegram: https://t.me/joinchat/HYSP3BFRbYTGpSRcaUgHqA
 
 Bitcointalk: https://bitcointalk.org/index.php?topic=4927902.msg44387152#msg44387152
 
+Discord: https://discord.gg/e7NEJu2
+
 Twitter: https://twitter.com/2Arium
